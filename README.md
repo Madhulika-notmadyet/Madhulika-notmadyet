@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning coding
 - I’m looking to collaborate on group based projects
 - 📫 How to reach me email: madhulikajithesh264@gmail.com
-- 😄 Pronouns: competitive
 - ⚡ Fun fact: brewing new ideas
 
 <!---
