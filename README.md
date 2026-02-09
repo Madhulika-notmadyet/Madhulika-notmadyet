@@ -2,7 +2,7 @@
 - 👀 I’m interested in app developing and programming
 - 🌱 I’m currently learning coding
 - I’m looking to collaborate on group based projects
-- 📫 How to reach me email: sweetmadhu264@gmail.com
+- 📫 How to reach me email: madhulikajithesh264@gmail.com
 - 😄 Pronouns: competitive
 - ⚡ Fun fact: brewing new ideas
 
